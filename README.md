@@ -1,0 +1,1 @@
+![Screenshot](C:\Users\Vasily\Desktop\Screenshot_7.png)
